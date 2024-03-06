@@ -2,6 +2,6 @@
 - 👀 I’m interested in politics, foreign languages, and software development.
 - 🌱 I’m currently learning about software testing and malware analysis.
 - 💞️ I’m looking to collaborate on anything really!
-- 📫 How to reach me: Linkedin https://tommymonahan.me/
+- 📫 How to reach me: www.tommymonahan.me
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm trilingual!
